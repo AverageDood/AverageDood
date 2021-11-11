@@ -1,7 +1,7 @@
 Sup there, AverageDood here.  
 
 - Not a lot about me. Regular everyday guy, interested in some tech-y things, mostly related to Windows, Android, and to some extent, Linux.  
-- Also videogames (someone out there who gifts me a GPU or a Steam Deck, pls, I do good dick sucking)  
+- Also videogames
 - Not interested in Apple. Actually, not interested on even hearing it's name lol.  
 
 Always looking for some small talk, of any kind. If you want, you can hit me up at [Telegram](https://t.me/AverageDood) and Discord (AverageDood#6106)
