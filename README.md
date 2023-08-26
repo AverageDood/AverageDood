@@ -1,10 +1,10 @@
 Sup there, AverageDood here.  
 
-- Not a lot about me. Regular everyday guy, interested in some tech-y things, mostly related to Windows, Android, and to some extent, Linux.  
+- Not a lot about me. Regular everyday guy, interested in some tech-y things, mostly related to Windows, Android, and Linux.  
 - Also videogames
 - Not interested in Apple. Actually, not interested on even hearing it's name lol.  
 
-Always looking for some small talk, of any kind. If you want, you can hit me up at [Telegram](https://t.me/AverageDood) and Discord (AverageDood#6106)
+Always looking for some small talk, of any kind. If you want, you can hit me up at [Telegram](https://t.me/AverageDood) and Discord (Average_Dood_)
 
 AverageDood out.
 <!---
